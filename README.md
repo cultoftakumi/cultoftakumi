@@ -2,4 +2,3 @@
 #### <p align="center"> agender　　european　　adhd
 #### <p align="center">[strawpage](https://straw.page/draw?bio=maleguro)　　[atabook](https://valkyrie.atabook.org)
 #### <p align="center">ask 4 socials or game IDs!!!
-#### <p align="center"> CRAZY ARASHI YUMEJIN
