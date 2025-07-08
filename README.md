@@ -2,4 +2,4 @@
 #### <p align="center"> agender　　european　　adhd
 #### <p align="center">[strawpage](https://straw.page/draw?bio=maleguro)　　[atabook](https://valkyrie.atabook.org)
 #### <p align="center">ask 4 socials or game IDs!!!
-### <p align="center"> ![image](https://imgur.com/a/7i3Kvkh)
+### <p align="center"> ![image](https://imgur.com/gallery/7i3Kvkh)
