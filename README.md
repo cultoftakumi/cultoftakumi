@@ -3,4 +3,4 @@
 #### <p align="center">[atabook](https://valkyrie.atabook.org)　　[strawpage](https://narukaz.straw.page)
 #### <p align="center">ask 4 socials or game IDs!!!
 
-###### <p align="center"> [![Screenshot-20250707-142131-Discord.jpg](https://i.postimg.cc/BQMTdsDb/Screenshot-20250707-142131-Discord.jpg)]
+###### <p align="center"> [![IMG-1955.jpg](https://i.postimg.cc/4yfjhHy2/IMG-1955.jpg)](https://postimg.cc/mznmvDQ7)
