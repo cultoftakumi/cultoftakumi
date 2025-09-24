@@ -1,5 +1,5 @@
 ##### <p align="center">
-#### <p align="center">[atabook](https://valkyrie.atabook.org)　　[strawpage](https://specialdefenseunit.straw.page)
+#### <p align="center">[atabook](https://valkyrie.atabook.org)　　[strawpage](https://maleguro.straw.page)
 
 
   　
