@@ -1,6 +1,5 @@
-##### <p align="center">
-#### <p align="center">[atabook](https://valkyrie.atabook.org)　　[strawpage](https://maleguro.straw.page)
-
-
-  　
-###### <p align="center"> ![Screenshot-20250821-204051-Discord.jpg](https://i.postimg.cc/brQqfbML/Screenshot-20250821-204051-Discord.jpg)
+##### <p align="center"> ![](https://media.tenor.com/dKWwfQgs9KoAAAAj/enstars.gif)
+####  <p align="center">∿　　⌒　      𐙚
+####  <p align="center">︵︵ ⠀◟ [ata](https://valkyrie.atabook.org)　𓏵　[straw](https://maleguro.straw.page)◞ ⠀︵︵
+####  <p align="center">
+####  <p align="center">
