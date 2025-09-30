@@ -2,4 +2,3 @@
 ####  <p align="center">∿　　⌒　      𐙚
 ####  <p align="center">︵︵ ⠀◟ [ata](https://valkyrie.atabook.org)　𓏵　[straw](https://maleguro.straw.page)◞ ⠀︵︵
 ####  <p align="center">
-####  <p align="center">
